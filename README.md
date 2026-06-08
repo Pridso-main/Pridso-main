@@ -1,4 +1,4 @@
-# Salut, moi c'est Pridso 👋
+# Salut, moi c'est Camille 👋
 
 > Étudiant BUT R&T · Cybersécurité · Dev du dimanche passionné
 
